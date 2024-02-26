@@ -1,3 +1,3 @@
 _Write a question for your teacher below._
 
-Q: 
+Q: what's your favorite season?
